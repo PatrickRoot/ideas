@@ -1,0 +1,2 @@
+# ideas
+ideas of mine
